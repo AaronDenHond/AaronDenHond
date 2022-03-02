@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-🌱 I’m currently learning web development and looking for an internship!
+🌱 Project Manager who likes to code :)
 
 📫 How to reach me: 
  - email : aaron.denhond@gmail.com
